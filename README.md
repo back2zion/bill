@@ -1,3 +1,4 @@
+<img width="1920" alt="20240701_capture" src="https://github.com/back2zion/bill/assets/17250308/c3325197-12c4-44e5-9730-72513fa2d889">
 
 
 ```markdown
